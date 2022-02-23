@@ -1,6 +1,6 @@
 ### Hey
 
-- 🔭 I’m currently working on technology stuff with [Xplor](https://xplortechnologies.com)
+- 🚀 I’m currently working on technology stuff with [Xplor](https://xplortechnologies.com)
 - 🌱 I’m currently learning corporate finance 💀
 - 😄 Pronouns: he/him
 
